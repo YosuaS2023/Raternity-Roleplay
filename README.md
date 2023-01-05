@@ -1,1 +1,1 @@
-Gaemod Basi Raternity
+Gaemod Basic Raternity
